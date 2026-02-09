@@ -1,0 +1,1 @@
+# Fizikte-Bilgisayar-Uygulamlar-
